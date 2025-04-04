@@ -6,7 +6,7 @@ Aca no voy a intentar presentar mi definicion ni explicar como creo que se manif
 
 El TDAH (Trastorno por Déficit de Atención e Hiperactividad) es una condición neurobiológica que afecta la forma en que el cerebro procesa la atención, el control de impulsos y la regulación del comportamiento. No es simplemente una cuestión de "falta de voluntad" o "poca disciplina"; hay diferencias reales en la estructura y función del cerebro que influyen en la manera en que una persona con TDAH experimenta el mundo.
 
-### Cómo afecta el cerebro
+### Cómo afecta el cerebro?
 El TDAH está relacionado con diferencias en varias áreas cerebrales clave, especialmente en regiones responsables de la atención, la regulación emocional y la motivación. Algunas de estas diferencias incluyen:
 
 1. **Disfunción en los neurotransmisores** 
@@ -48,3 +48,6 @@ Debido a estos cambios en el cerebro, el TDAH puede hacer que tareas que parecen
 - Dificultad para controlar emociones, reaccionando de forma intensa o cambiando de humor rápidamente.
 
 - Problemas con la gestión del tiempo, subestimando o sobreestimando cuánto dura una tarea.
+
+
+[Volver al inicio](../README.md)
