@@ -30,7 +30,7 @@ El TDAH está relacionado con diferencias en varias áreas cerebrales clave, esp
 3. **Conectividad cerebral alterada** 
   El cerebro funciona como una red en la que diferentes áreas se comunican entre sí. En el TDAH, algunas de estas conexiones pueden ser más débiles o menos eficientes, lo que afecta la capacidad de mantener la atención, regular emociones y cambiar entre tareas de manera fluida.
 
-  Por ejemplo, las conexiones entre la corteza prefrontal y otras áreas como el sistema límbico pueden ser más débiles, lo que hace que la impulsividad y las emociones sean más difíciles de manejar.
+    Por ejemplo, las conexiones entre la corteza prefrontal y otras áreas como el sistema límbico pueden ser más débiles, lo que hace que la impulsividad y las emociones sean más difíciles de manejar.
 
 
 ## Como se manifiesta el TDAH?
