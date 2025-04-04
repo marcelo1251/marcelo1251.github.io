@@ -60,9 +60,14 @@ Pero la perdida mas significativa fue la confianza de mi expareja, alguien que r
 
 Para comprenderme a mi mismo, he llegado a asociar mis vivencias (al menos lo que recuerdo) con la condicion neurodivergente, de manera que fuese posible identificar situaciones que tuviesen la capacidad de empeorar diferentes condiciones del TDAH o que acentuaran las consecuencias de vivir con dicha condicion. 
 
+Me parece conveniente dividir mis vivencias en diferentes epocas para poder asociar situaciones especificas con una edad aproximada o etapa de desarrollo en la que me encontraba cuando ocurrieron:
+
 - Niñez
 - Vida escolar
 - Vida colegial
 - Vida universitaria
 - Adulto joven
-- Madurez, matrimonio y divorcio
+- Madurez, matrimonio y separacion
+- Post-separacion y proceso de divorcio
+
+  
