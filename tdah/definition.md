@@ -12,9 +12,9 @@ El TDAH está relacionado con diferencias en varias áreas cerebrales clave, esp
 1. Disfunción en los neurotransmisores
   Los cerebros de las personas con TDAH tienen un desequilibrio en neurotransmisores como la dopamina y la noradrenalina, que son esenciales para la atención, la motivación y la autorregulación.
 
-    - Dopamina: Está relacionada con la recompensa y la motivación. En el TDAH, hay menos dopamina disponible en ciertas áreas del cerebro, lo que puede hacer que las personas busquen estímulos constantes para sentirse motivadas.
+  - Dopamina: Está relacionada con la recompensa y la motivación. En el TDAH, hay menos dopamina disponible en ciertas áreas del cerebro, lo que puede hacer que las personas busquen estímulos constantes para sentirse motivadas.
 
-    - Noradrenalina: Ayuda en la concentración y la respuesta al estrés. Un déficit en este neurotransmisor puede hacer que la mente divague fácilmente o que sea difícil gestionar el estrés y las emociones.
+  - Noradrenalina: Ayuda en la concentración y la respuesta al estrés. Un déficit en este neurotransmisor puede hacer que la mente divague fácilmente o que sea difícil gestionar el estrés y las emociones.
 
   Por eso, muchas personas con TDAH pueden tener dificultades con la motivación en tareas que no les resultan estimulantes, pero a la vez pueden enfocarse intensamente en algo que les interesa (lo que se llama hiperfoco).
 
