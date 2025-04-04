@@ -16,23 +16,45 @@ Me encuentro en medio de un proceso de divorcio, tengo un hijo de 9 años al que
 
 Hace unos años decidi hablar con un psicologo para intentar comprender muchas cosas que para mi no tenian sentido en mi vida: comportamientos que consideraba irracionales o compulsivos, ansiedad, insomnio, depresion, pensamientos e ideas obsesivas, pero principalmente porque desde que tengo memoria nunca he podido sentirme tranquilo, feliz, motivado o agradecido con la vida, lo que yo consideraba un imbalance quimico... como si mi cerebro no manejara los niveles de dopamina de manera correcta. Y no, no es que nunca hubiese sentido felicidad o motivacion; sino que aun durante situaciones positivas en las que alguien puede sentirse feliz y orgulloso de si mismo durante varios dias, yo experimentaba esas sensaciones solo por unos breves minutos.
 
-Para mayor contexto, siempre he sido desordenado, procastino mucho, olvido conversaciones recientes, me distraigo con facilidad, me mancho la ropa al comer, soy "torpe" al realizar labores simples, se me hace imposible ser puntual, no soy capaz de estimar tiempos de manera correcta, me incomodan ciertas situaciones sociales, me incomoda estar en lugares ruidosos o muy iluminados, tiendo a interesarme en ideas y pasatiempos por un breve lapso y luego desinteresarme por completo... siempre pierdo las llaves, mi celular o mi billetera, olvido facilmente lo que estaba haciendo, se me dificulta iniciar una tarea, completarla y luego enfocarme en otra, a veces me obsesiono con ciertos temas y me desentiendo de todo lo demas, etc.
+Para mayor contexto, siempre he sido desordenado, procastino mucho, olvido conversaciones recientes, me distraigo con facilidad, me mancho la ropa al comer, soy "torpe" al realizar labores simples, se me hace imposible ser puntual, no soy capaz de estimar tiempos de manera correcta, me incomodan ciertas situaciones sociales, me incomoda estar en lugares ruidosos o muy iluminados, tiendo a interesarme en ideas y pasatiempos por un breve lapso y luego desinteresarme por completo... siempre pierdo mis llaves, celular o billetera, olvido facilmente lo que estaba haciendo, se me dificulta iniciar una tarea, completarla y luego enfocarme en otra, a veces me obsesiono con ciertos temas y me desentiendo de todo lo demas, etc.
 
 Durante el tiempo que iba a terapia me sentia muy frustrado, esperaba algun tipo de cambio, diagnostico o idea que me hiciese "click". Al punto que le insisti al psicologo por un diagnostico y me dijo que todo parecia indicar que tenia TDAH, pero que debia visitar a un psiquiatra para un diagnostico clinico oficial. 
 
-He investigado varias veces el transtorno por deficit de atencion e hiperactividad, parece calzar dentro de mi historia como el eslabon que conecta todo pero se me hace imposible dar el siguiente paso, visitar un psiquiatra y obtener el diagnostico final. De manera ironica, dentro del TDAH existe la "parálisis por sobrecarga emocional o parálisis por ansiedad ejecutiva", algo que he experimentado muchas veces en la vida.
+He investigado varias veces el transtorno por deficit de atencion e hiperactividad, parece calzar dentro de mi historia como el eslabon que conecta todo pero **se me hace imposible dar el siguiente paso**, visitar un psiquiatra y obtener el diagnostico final. De manera ironica, dentro del TDAH existe la "parálisis por sobrecarga emocional o parálisis por ansiedad ejecutiva", algo que he experimentado muchas veces en la vida.
 
 ### Como se siente o que pasa durante una parálisis por sobrecarga emocional o ansiedad ejecutiva?
 
 Es como si existiera una fuerza mas grande que la voluntad propia que evita que uno pueda moverse libremente. Como si el cuerpo se desasociara selectivamente del cerebro, y digo selectivamente porque si quiero mover un brazo lo muevo, pero si quiero hacer una tarea importante el cuerpo no responde. Cuando le he explicado esto a algunos conocidos les dije que es como despertarse luego de un accidente, debajo de escombros o prensado dentro de un vehiculo.  
 
-Cuando me encuentro en "parálisis" algo tan simple como responder un mensaje de texto se vuelve extremadamente frustrante, aun cuando solo requiera un "si/no" como respuesta. Curiosamente, la paralisis tiende a afectar unicamente aquello que uno considera importante, pero la necesidad de dopamina persiste. Esa necesidad causa que uno busque dopamina de otras fuentes, ya sea mediante comportamientos compulsivos, redes sociales, alcohol, drogas, etc. 
+La paralisis supone una condicion que normalmente afecta a una persona con TDAH, que es la imposibilidad de "apagar" el cerebro, pero con pensamientos sombrios, negativos, obsesivos y una gran cantidad de estados animicos como soledad, vacío existencial, ansiedad, desconexión emocional, miedo al abandono, necesidad de validacion, desesperacion, desprecio propio, etc.
 
-Se manifiesta como una depresion aguda o como un luto luego de perder a un ser querido. En mi experiencia las paralisis inician justo despues de algun evento de alta relevancia, por ejemplo mi ultima paralisis inicio el dia del cumpleanos de mi hijo.
+Durante una "parálisis" algo tan simple como responder un mensaje de texto se vuelve extremadamente frustrante, incluso si solo debo dar un "si/no" como respuesta.. se me vienen a la cabeza una serie de pensamientos frustrantes asociados a la pregunta: 
+- las expectativas de quien pregunta,
+- si recibir mi respuesta va a causar que la otra persona desee entablar una conversacion,
+- si la otra persona se va a quejar porque esperaba la respuesta antes,
+- si va a existir una exhortacion posterior a mi respuesta.
 
-Es un evento progresivo en el que algo se apaga dentro de uno. Al inicio puede lidiar con personas y algunas tareas pero progresivamente se pierde el interes por salir, hablar y se pierde el interes por el mundo externo hasta aislarse por completo. 
+Curiosamente, la paralisis tiende a afectar principalmente aquellas acciones/tareas asociadas a personas, situaciones o cosas que uno considera importante. Dependiendo del estado emocional/animico que se tenga, puede que sea posible realizar actividades aleatorias como leer, investigar, armar un rompecabezas.. siempre y cuando le permitan a la mente divagar o distraerse de los pensamientos obsesivos; esto mientras recibe una dosis de dopamina. Durante episodios de paralisis mas agudos, he perdido la necesidad de comer, de hidratarme, incluso de realizar actividades fisiologicas basicas como orinar o defecar. Recuerdo un par de episodios en los que pase una semana durmiendo casi de manera continua: sin comer, sin hidratarme ni poder siquiera responder los numerosos mensajes de personas que se preocuparon porque simplemente dejaron de verme de repente.    
 
-Emocionalmente se pasa por una enorme lista de estados como soledad, vacío existencial, desconexión emocional, miedo al abandono, necesidad de validacion, desesperacion, desprecio propio, etc.
+En mi caso en particular, las paralisis inician luego de perderme de un evento de alta relevancia, como el cumpleanos de mi hijo o el dia del padre (en ambas ocasiones, consecuencia de las decisiones de la madre). Inicia con un dolor fuerte o bajon emocional similar a una depresion aguda o el inicio del luto luego de perder a un ser querido. La paralisis es un evento progresivo en el que algo se apaga dentro de uno pero llega a convertirse en una condicion incapacitante. De entrada es posible lidiar con personas y algunas tareas pero se pierde paulatinamente el interes por salir o hablar, luego se crea distancia con los familiares y/o seres queridos, hasta terminar aislandose y limitando al maximo la comunicacion. 
+
+He notado que hablar con amigos o seres queridos luego de aislarme en media paralisis, requiere de mucho esfuerzo y trae consigo un desgaste emocional enorme. Por un lado uno es consciente que estan preocupados y quieren que uno este bien, por otro lado, en muchos casos el tono de voz, el mensaje o la iigar, armar un rompecabezas.. siempre y cuando le permitan a la mente divagar o distraerse de los pensamientos obsesivos; esto mientras recibe una dosis de dopamina. Durante episodios de paralisis mas agudos, he perdido la necesidad de comer, de hidratarme, incluso de realizar actividades fisiologicas basicas como orinar o defecar. Recuerdo un par de episodios en los que pase una semana durmiendo casi de manera continua: sin comer, sin hidratarme ni poder siquiera responder los numerosos mensajes de personas que se preocuparon porque simplemente dejaron de verme de repente.    
+
+En mi caso en particular, las paralisis inician luego de perderme de un evento de alta relevancia, como el cumpleanos de mi hijo o el dia del padre (en ambas ocasiones, consecuencia de las decisiones de la madre). Inicia con un dolor fuerte o bajon emocional similar a una depresion aguda o el inicio del luto luego de perder a un ser querido. La paralisis es un evento progresivo en el que algo se apaga dentro de uno pero llega a convertirse en una condicion incapacitante. De entrada es posible lidiar con personas y algunas tareas pero se pierde paulatinamente el interes por salir o hablar, luego se crea distancia con los familiares y/o seres queridos, hasta terminar aislandose y limitando al maximo la comunicacion. 
+
+He notado que hablar con amigos o seres queridos luego de aislarmeigar, armar un rompecabezas.. siempre y cuando le permitan a la mente divagar o distraerse de los pensamientos obsesivos; esto mientras recibe una dosis de dopamina. Durante episodios de paralisis mas agudos, he perdido la necesidad de comer, de hidratarme, incluso de realizar actividades fisiologicas basicas como orinar o defecar. Recuerdo un par de episodios en los que pase una semana durmiendo casi de manera continua: sin comer, sin hidratarme ni poder siquiera responder los numerosos mensajes de personas que se preocuparon porque simplemente dejaron de verme de repente.    
+
+En mi caso en particular, las paralisis inician luego de perderme de un evento de alta relevancia, como el cumpleanos de mi hijo o el dia del padre (en ambas ocasiones, consecuencia de las decisiones de la madre). Inicia con un dolor fuerte o bajon emocional similar a una depresion aguda o el inicio del luto luego de perder a un ser querido. La paralisis es un evento progresivo en el que algo se apaga dentro de uno pero llega a convertirse en una condicion incapacitante. De entrada es posible lidiar con personas y algunas tareas pero se pierde paulatinamente el interes por salir o hablar, luego se crea distancia con los familiares y/o seres queridos, hasta terminar aislandose y limitando al maximo la comunicacion. 
+
+He notado que hablar con amigos o seres queridos luego de aislarmeigar, armar un rompecabezas.. siempre y cuando le permitan a la mente divagar o distraerse de los pensamientos obsesivos; esto mientras recibe una dosis de dopamina. Durante episodios de paralisis mas agudos, he perdido la necesidad digar, armar un rompecabezas.. siempre y cuando le permitan a la mente divagar o distraerse de los pensamientos obsesivos; esto mientras recibe una dosis de dopamina. Durante episodios de paralisis mas agudos, he perdido la necesidad de comer, de hidratarme, incluso de realizar actividades fisiologicas basicas como orinar o defecar. Recuerdo un par de episodios en los que pase una semana durmiendo casi de manera continua: sin comer, sin hidratarme ni poder siquiera responder los numerosos mensajes de personas que se preocuparon porque simplemente dejaron de verme de repente.    
+
+En mi caso en particular, las paralisis inician luego de perderme de un evento de alta relevancia, como el cumpleanos de mi hijo o el dia del padre (en ambas ocasiones, consecuencia de las decisiones de la madre). Inicia con un dolor fuerte o bajon emocional similar a una depresion aguda o el inicio del luto luego de perder a un ser querido. La paralisis es un evento progresivo en el que algo se apaga dentro de uno pero llega a convertirse en una condicion incapacitante. De entrada es posible lidiar con personas y algunas tareas pero se pierde paulatinamente el interes por salir o hablar, luego se crea distancia con los familiares y/o seres queridos, hasta terminar aislandose y limitando al maximo la comunicacion. 
+
+He notado que hablar con amigos o seres queridos luego de aislarmee comer, de hidratarme, incluso de realizar actividades fisiologicas basicas como orinar o defecar. Recuerdo un par de episodios en los que pase una semana durmiendo casi de manera continua: sin comer, sin hidratarme ni poder siquiera responder los numerosos mensajes de personas que se preocuparon porque simplemente dejaron de verme de repente.    
+
+En mi caso en particular, las paralisis inician luego de perderme de un evento de alta relevancia, como el cumpleanos de mi hijo o el dia del padre (en ambas ocasiones, consecuencia de las decisiones de la madre). Inicia con un dolor fuerte o bajon emocional similar a una depresion aguda o el inicio del luto luego de perder a un ser querido. La paralisis es un evento progresivo en el que algo se apaga dentro de uno pero llega a convertirse en una condicion incapacitante. De entrada es posible lidiar con personas y algunas tareas pero se pierde paulatinamente el interes por salir o hablar, luego se crea distancia con los familiares y/o seres queridos, hasta terminar aislandose y limitando al maximo la comunicacion. 
+
+He notado que hablar con amigos o seres queridos luego de aislarme requiere de un esfuerzo enorme y genera un desgaste emocional significativo. Aqui, el tono de voz, el mensaje y/o la intencion del mensaje pueden aumentar de manera exponencial mi frustracion, en especial si usan frases de autoayuda, se nota un intento por invalidar o minimizar la situacion o recurren a psicologia inversa. Sin haberlo experimentado, asumo que pregunar por como uno se siente, escuchar *sin interrumpir*, evitar mencionar paralelismos con su experiencia propia y ofrecerse a estar disponible cuando uno quiera hablar, puede suponer la mejor forma de ayudar. 
 
 ### Como le explico esta parálisis a las personas que realmente me importan?
 
@@ -40,7 +62,7 @@ Es sumamente dificil. De entrada las personas piensan que se trata de excusas ba
 
 ### Que tanto se puede perder durante una parálisis?
 
-Todo... absolutamente todo lo que es importante para la persona que experimenta la parálisis: amistades, parejas, ahorros, trabajos... puede atrasarse o incluso puede que le suspendan servicios vitales como electricidad o agua, audiencias legales, etc.
+Todo... absolutamente todo lo que es importante para la persona que experimenta la parálisis: amistades, parejas, ahorros, trabajo... puede atrasarse o incluso puede que le suspendan servicios vitales como electricidad o agua, perder audiencias legales, etc.
 
 ### Se es consciente de todo lo que se puede perder durante una parálisis?
 
@@ -52,8 +74,55 @@ Muchisimo, de entrada perdi el trabajo que tenia, gaste los pocos ahorros que me
 
 En mi ultima paralisis, pase aproximadamente un mes en el que no salia de mi cuarto, unicamente para comprar alcohol en la licorera 5 minutos antes que cerraran. Y es que como mencione anteriormente, la necesidad de dopamina persiste. 
 
-Otra perdida fue la confianza de mi expareja, que trajo como consecuencia la ruptura de la relacion. Debo reconocer que todo lo que me pasaba y sentia propiciaron que hablara de manera indebida con una mujer ajena a la relacion, no con intenciones formales sino por buscar un estimulo... dopamina rapida que me distrajera de todo lo que estaba enfrentando. Esto no debio suceder y lo reconzco abiertamente, no busco refugiarme en el TDAH para pintarme como victima.
+Otra perdida fue la confianza de mi expareja, que trajo como consecuencia la ruptura de la relacion. Debo reconocer que todo lo que me pasaba y sentia propiciaron que hablara de manera indebida con una mujer ajena a la relacion, no con intenciones formales sino por buscar un estimulo... dopamina rapida que me distrajera de los recurrentes pensamientos sombrios y obsesivos. Esto no debio suceder y lo reconzco abiertamente, no busco refugiarme en el TDAH para pintarme como victima.
 
+
+## Que es el TDAH y como se manifiesta? 
+
+Aca no voy a dar mi definicion, sino copiar la definicion de ChatGPT.
+
+El TDAH (Trastorno por Déficit de Atención e Hiperactividad) es una condición neurobiológica que afecta la forma en que el cerebro procesa la atención, el control de impulsos y la regulación del comportamiento. No es simplemente una cuestión de "falta de voluntad" o "poca disciplina"; hay diferencias reales en la estructura y función del cerebro que influyen en la manera en que una persona con TDAH experimenta el mundo.
+
+Cómo afecta el cerebro
+El TDAH está relacionado con diferencias en varias áreas cerebrales clave, especialmente en regiones responsables de la atención, la regulación emocional y la motivación. Algunas de estas diferencias incluyen:
+
+1. Disfunción en los neurotransmisores
+Los cerebros de las personas con TDAH tienen un desequilibrio en neurotransmisores como la dopamina y la noradrenalina, que son esenciales para la atención, la motivación y la autorregulación.
+
+- Dopamina: Está relacionada con la recompensa y la motivación. En el TDAH, hay menos dopamina disponible en ciertas áreas del cerebro, lo que puede hacer que las personas busquen estímulos constantes para sentirse motivadas.
+
+- Noradrenalina: Ayuda en la concentración y la respuesta al estrés. Un déficit en este neurotransmisor puede hacer que la mente divague fácilmente o que sea difícil gestionar el estrés y las emociones.
+
+Por eso, muchas personas con TDAH pueden tener dificultades con la motivación en tareas que no les resultan estimulantes, pero a la vez pueden enfocarse intensamente en algo que les interesa (lo que se llama hiperfoco).
+
+2. Diferencias en la estructura cerebral
+Estudios de neuroimagen han mostrado que ciertas áreas del cerebro pueden ser más pequeñas o funcionar de manera diferente en personas con TDAH:
+
+- Corteza prefrontal (frontal del cerebro): Es responsable de la planificación, el autocontrol y la toma de decisiones. En el TDAH, puede estar menos activa o desarrollarse más lentamente, lo que dificulta la organización, la gestión del tiempo y el control de impulsos.
+
+- Ganglios basales: Regulan el movimiento y la motivación. En el TDAH, su funcionamiento alterado puede contribuir a la hiperactividad o a la necesidad de estar en constante movimiento.
+
+- Sistema límbico: Relacionado con las emociones. Puede ser más reactivo en personas con TDAH, lo que hace que las emociones sean intensas y difíciles de regular.
+
+3. Conectividad cerebral alterada
+El cerebro funciona como una red en la que diferentes áreas se comunican entre sí. En el TDAH, algunas de estas conexiones pueden ser más débiles o menos eficientes, lo que afecta la capacidad de mantener la atención, regular emociones y cambiar entre tareas de manera fluida.
+
+Por ejemplo, las conexiones entre la corteza prefrontal y otras áreas como el sistema límbico pueden ser más débiles, lo que hace que la impulsividad y las emociones sean más difíciles de manejar.
+
+Cómo se manifiesta en la vida diaria
+Debido a estos cambios en el cerebro, el TDAH puede hacer que tareas que parecen simples para otros sean extremadamente difíciles. Algunas experiencias comunes incluyen:
+
+- Dificultad para empezar tareas aburridas o rutinarias, aunque sean importantes.
+
+- Olvidos constantes, incluso en cosas que realmente importan.
+
+- Sensación de caos mental, con demasiados pensamientos al mismo tiempo.
+
+- Hiperfoco en cosas interesantes, perdiendo la noción del tiempo.
+
+- Dificultad para controlar emociones, reaccionando de forma intensa o cambiando de humor rápidamente.
+
+- Problemas con la gestión del tiempo, subestimando o sobreestimando cuánto dura una tarea.
 
 ## El camino a mi condicion actual
 
