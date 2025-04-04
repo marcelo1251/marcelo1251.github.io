@@ -9,7 +9,7 @@ El TDAH (Trastorno por Déficit de Atención e Hiperactividad) es una condición
 ### Cómo afecta el cerebro
 El TDAH está relacionado con diferencias en varias áreas cerebrales clave, especialmente en regiones responsables de la atención, la regulación emocional y la motivación. Algunas de estas diferencias incluyen:
 
-1. Disfunción en los neurotransmisores
+1. **Disfunción en los neurotransmisores** 
   Los cerebros de las personas con TDAH tienen un desequilibrio en neurotransmisores como la dopamina y la noradrenalina, que son esenciales para la atención, la motivación y la autorregulación.
 
     - Dopamina: Está relacionada con la recompensa y la motivación. En el TDAH, hay menos dopamina disponible en ciertas áreas del cerebro, lo que puede hacer que las personas busquen estímulos constantes para sentirse motivadas.
@@ -18,7 +18,7 @@ El TDAH está relacionado con diferencias en varias áreas cerebrales clave, esp
 
     Por eso, muchas personas con TDAH pueden tener dificultades con la motivación en tareas que no les resultan estimulantes, pero a la vez pueden enfocarse intensamente en algo que les interesa (lo que se llama hiperfoco).
 
-2. Diferencias en la estructura cerebral
+2. **Diferencias en la estructura cerebral** 
   Estudios de neuroimagen han mostrado que ciertas áreas del cerebro pueden ser más pequeñas o funcionar de manera diferente en personas con TDAH:
 
     - Corteza prefrontal (frontal del cerebro): Es responsable de la planificación, el autocontrol y la toma de decisiones. En el TDAH, puede estar menos activa o desarrollarse más lentamente, lo que dificulta la organización, la gestión del tiempo y el control de impulsos.
@@ -27,7 +27,7 @@ El TDAH está relacionado con diferencias en varias áreas cerebrales clave, esp
 
     - Sistema límbico: Relacionado con las emociones. Puede ser más reactivo en personas con TDAH, lo que hace que las emociones sean intensas y difíciles de regular.
 
-3. Conectividad cerebral alterada
+3. **Conectividad cerebral alterada** 
   El cerebro funciona como una red en la que diferentes áreas se comunican entre sí. En el TDAH, algunas de estas conexiones pueden ser más débiles o menos eficientes, lo que afecta la capacidad de mantener la atención, regular emociones y cambiar entre tareas de manera fluida.
 
   Por ejemplo, las conexiones entre la corteza prefrontal y otras áreas como el sistema límbico pueden ser más débiles, lo que hace que la impulsividad y las emociones sean más difíciles de manejar.
