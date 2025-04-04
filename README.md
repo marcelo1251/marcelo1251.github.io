@@ -52,7 +52,7 @@ Muchisimo, de entrada perdi el trabajo que tenia, gaste los pocos ahorros que me
 
 En mi ultima paralisis, pase aproximadamente un mes en el que no salia de mi cuarto, unicamente para comprar alcohol en la licorera 5 minutos antes que cerraran. Y es que como mencione anteriormente, la necesidad de dopamina persiste. 
 
-Pero la perdida mas significativa fue la confianza de mi expareja, alguien que realmente amo y que trajo como consecuencia la ruptura de la relacion. Debo reconocer que todo lo que me pasaba y sentia propiciaron que hablara de manera indebida con una mujer ajena a la relacion, no con intenciones formales sino por buscar un estimulo... dopamina rapida que me distrajera de todo lo que estaba enfrentando. Esto no debio pasar por lo que lo reconzco abiertamente, no busco refugiarme en el TDAH para pintarme como victima y claramente no puedo esperar que acepte o asimile una conducta como esa.
+Otra perdida fue la confianza de mi expareja, que trajo como consecuencia la ruptura de la relacion. Debo reconocer que todo lo que me pasaba y sentia propiciaron que hablara de manera indebida con una mujer ajena a la relacion, no con intenciones formales sino por buscar un estimulo... dopamina rapida que me distrajera de todo lo que estaba enfrentando. Esto no debio suceder y lo reconzco abiertamente, no busco refugiarme en el TDAH para pintarme como victima.
 
 
 ## El camino a mi condicion actual
